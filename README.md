@@ -1,0 +1,2 @@
+# Ethic-
+Ethic earning 
